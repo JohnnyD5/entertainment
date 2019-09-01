@@ -1,4 +1,4 @@
-# Sunday 
+# First Free Sunday 
 Free admission on the first Sunday of the month to the following museums
 ## LSU Museum of Art
 * **Rating：** 4.7
